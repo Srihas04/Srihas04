@@ -1,4 +1,4 @@
-# 👨‍💻 Hi, I'm Srihas Pavna
+# 👨‍💻 Hi, I'm Srihas Pavan
 
 ## About Me
 
